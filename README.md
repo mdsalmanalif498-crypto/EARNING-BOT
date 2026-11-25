@@ -1,0 +1,2 @@
+# EARNING-BOT
+ᴮᴰ〆EARNING Telegram BOT
